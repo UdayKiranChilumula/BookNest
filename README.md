@@ -1,7 +1,6 @@
+https://github.com/user-attachments/assets/287eea5f-7dde-4a80-a2c0-009207ddd857
 
 Some snaps of the website:
-
-
 
 ![IMG-20240808-WA0003](https://github.com/user-attachments/assets/44340381-7c6a-40d2-be72-67a39064cd5e)
 
